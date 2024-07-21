@@ -29,7 +29,7 @@ Let ĐạiPH cook
 ⣿⣿⣿⡿⠟⠋⠀⠀⠀⠀⠹⣿⣧⣀⠀⠀⠀⠀⡀⣴⠁⢘⡙⢿⣿⣿⣿<br/>
 ⠉⠉⠁⠀⠀⠀⠀⠀⠀⠀⠀⠈⠙⢿⠗⠂⠄⠀⣴⡟⠀⠀⡃⠀⠉⠉⠟<br/>
 
-![Banner](Banner.png)
+![Banner](banner.png)
 
 <!---
 BackNNHH/BackNNHH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
