@@ -2,9 +2,9 @@
 - ⭐ I'm from VietNam...
 - 📦 **Minecraft**: Terraria, Hello Neighbor, Outlast, Omori, Persona5, IdentityV, Mindustry, Dbdl, BA, GI, CFB, PC:Re(is not add💀) v.v..
 - 😃😆🤫🧏‍♀️🙆‍♀️🙇‍♀️📘📘📘📘📘📘📘📘📘📙
-- 🗑️
-- 
-- 🗣🔥🔥🔥 **_HoangSaTruongSa_ lacua _VietNam_!!!**
+- 🗑️: my DLC :sob:
+- 🗣🔥🔥🔥 **HoangSaTruongSalacuaVietNam!!!** 🗣🔥🔥🔥
+- 📫 How to reach me: Discord(vWHnnB56Hw)
 <!--- 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
@@ -13,8 +13,7 @@
 - 😄 Pronouns: ...
 --->
 - ⚡ "Fun" fact: noone likes me 😳🤡 :trollface:
-  
-Let ĐạiPH cook
+  Let ĐạiPH cook
 
 ⣿⣿⣿⣿⣿⣿⣿⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠆⠜⣿⣿⣿⣿⣿⣿<br/>
 ⣿⣿⣿⣿⠿⠿⠛⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠉⠻⣿<br/>
