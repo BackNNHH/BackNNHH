@@ -1,6 +1,6 @@
 - 👋 Hi, I’m ĐạiPH (BackNNHH), is "programmer" or NOT...
 - ⭐ I'm from VietNam...
-- 📦 **Minecraft**: Terraria, Hello Neighbor, Outlast, Omori, Persona5, IdentityV, Mindustry, Dbdl, BA, GI, CFB, PC:Re(is not add💀) v.v..
+- 📦 **Minecraft**: Terraria, Hello Neighbor, Outlast, Omori, Persona5, IdentityV, Mindustry, DBDl, BA, GI, CFB, PC:Re(is not add💀) v.v..
 - 😃😆🤫🧏‍♀️🙆‍♀️🙇‍♀️📘📘📘📘📘📘📘📘📘📙
 - 🗑️: my DLC :sob:
 - 🗣🔥🔥🔥 **HoangSaTruongSalacuaVietNam!!!** 🗣🔥🔥🔥
