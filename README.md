@@ -13,7 +13,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 --->
-- ⚡ "Fun" fact: noone likes me 😳🤡 :trollface:
+- ⚡ "Fun" fact: my code is trash 😳🤡 :trollface:
 
   Let ĐạiPH cook
 
